@@ -1,0 +1,7 @@
+- @luigon07
+- Currently, studying at Universidad Complutense de Madrid, Physics Grade (4th course), 2022
+- 
+- Interested in every aspect of physics and astrophysics.
+- Learning python coding
+- 
+- Contact: luigon07@ucm.es
